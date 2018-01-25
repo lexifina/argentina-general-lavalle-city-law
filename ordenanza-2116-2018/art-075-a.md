@@ -1,0 +1,1 @@
+Artículo 75º- A los efectos de dicha determinación se considerará prestado el servicio de alumbrado, a todo inmueble que se encuentre a 100 metros a todo rumbo de un foco de Alumbrado Público, no computándose en la medida de la distancia, el ancho de las calles.-

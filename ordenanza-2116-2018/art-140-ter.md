@@ -1,0 +1,1 @@
+Artículo 140º ter.- Si se colocan mesas y sillas sin permiso o en mayor número que el autorizado, el responsable se hará pasible de las sanciones que establecen los artículos 39º al 42º de la presente Ordenanza Fiscal y de las multas que a tal efecto fije el Departamento Ejecutivo.

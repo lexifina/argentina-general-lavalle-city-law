@@ -1,0 +1,1 @@
+Artículo 156 bis – Facultase al Departamento Ejecutivo ad referéndum del HCD a establecer reglamentariamente los requisitos y procedimientos necesarios para la solicitud, mantenimiento y baja de la exención dispuesta en el artículo 156 de la Ordenanza Fiscal.
