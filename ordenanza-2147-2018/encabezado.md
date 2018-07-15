@@ -1,0 +1,9 @@
+Ordenanza Nº2147/2018
+Ordenanza Nº 2147/2018
+General Lavalle, 11/05/2018
+VISTO:
+El Expediente Municipal Nº 4045-1662/14, iniciado por Secretaria Legal y Técnica y caratulado "Solicita arrendamiento en zona portuaria Distribuidora Marechiare S.R.L. y Jou Fisch S.R.L.", y;
+CONSIDERANDO: Que piden las sociedades denunciadas el lote Nº17 en zona portuaria. Que por Decreto Municipal Nº 533 /2014 fs. 3 se les otorga a las empresas la Parcela Nº17 del Puerto Municipal por quince (15) años, con cinco (5) años de gracia. Que en el plazo de un (1) año deberían realizar las mejoras. Que, si no realizaban las mejoras en el plazo de un (1) año, el contrato quedaba sin efecto. Que a fs. 4 se sancionó la Ordenanza N2 1931/2014. Que a fs. 7 obra resolución de intimación al representante de la empresa porque no hay mejora realizada (Resolución Nº 11/2016). • Que el representante de la empresa no suscribió contrato con la Municipalidad. Que a fs. 9 se dicta Resolución del H.C.D Nº 18/2016 solicita se intime al representante de las sociedades para que manifiesten su intención de arrendar o su voluntad de prescindir de dicha parcela, dado que no se perfeccionó el acto jurídico. Que la Asesoría General de Gobierno a fs. 14/15 manifiesta que atento no haber firmado contrato el representanté de la empresa, no haber realizado las mejoras en el año, el silencio del representante de la empresa por las resoluciones que obran en el Expediente y no habiendo cumplimentado con las obras proyectadas se debe derogar la Ordenanza. Que a fs. 21 obra informe del Inspector Municipal Adauto, Laura, donde se constata que el lote 17 se encuentra en estado de abandono. Que se debe derogar la Ordenanza Nº 1931/2014 por no cumplir con nada de los establecido por la misma (fs. 13). POR ELLO:
+El Honorable Concejo Deliberante, en uso de sus facultades que la LOM le confiere, sanciona la siguiente:
+ORDENANZA Nº 2147/2018
+ORDENANZA
