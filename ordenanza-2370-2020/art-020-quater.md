@@ -1,0 +1,1 @@
+ARTÍCULO 20° quater.- Cuando se trate de construcciones que, por su índole no pueden ser valuadas conforme a lo establecido en el presente Artículo, el gravamen se establece en el 1% o 1.25 % de acuerdo a la modalidad del pago, sobre el valor estimado de las mismas.
