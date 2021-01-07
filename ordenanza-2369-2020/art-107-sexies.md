@@ -1,0 +1,3 @@
+Artículo 107º Sexies: En las actividades que comprenden diversos ramos con distintos tratamientos impositivos, el contribuyente deberá discriminar el monto de los ingresos brutos a fin de pagar la tasa que corresponda a cada uno; debiendo discriminar en su caso los correspondientes a actividades gravadas, no gravadas y exentas. -
+Cuando se omitiera esa discriminación, todos los ingresos estarán sometidos al tratamiento fiscal más gravoso. –
+No dejará de gravarse un ramo o actividad por el hecho de que no haya sido prevista en forma expresa en esta Ordenanza. En tal supuesto se aplicará la alícuota general. -

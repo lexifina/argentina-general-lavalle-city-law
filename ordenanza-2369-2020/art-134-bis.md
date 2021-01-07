@@ -1,0 +1,1 @@
+Artículo 134º bis. - Cuando su construcción no encuadre dentro de las disposiciones de las Ordenanzas correspondientes, su aprobación se efectuará únicamente mediante resolución del Departamento Ejecutivo Ad Referéndum del HCD en caso de considerarlo procedente- teniendo un plazo máximo de 90 días para ser elevado al HCD por el Departamento Ejecutivo. -
