@@ -1,0 +1,14 @@
+Ordenanza Nº2385/2021
+Ordenanza Nº 2385/2021
+General Lavalle, 12/02/2021
+VISTO:
+El Decreto Municipal N° 161/2021, recepcionado mediante Nota HCD N° 16/2021; y
+CONSIDERANDO:
+Que, con fecha 18 de diciembre de 2020, se dictó las Ordenanza N° 2375/2020 Complementaria del Presupuesto vigente para el presente año, estableciendo en dicho cuerpo legal el valor del módulo en $ 287.
+Que, en el artículo 24 de la mencionada Ordenanza se contempla la adecuación de la pauta salarial, teniendo en cuenta los parámetros de evaluación de ingreso por coparticipación y aumentos salariales en otras escalas del gobierno, ellos para los meses de Marzo y Agosto, habiendo evaluado este Departamento Ejecutivo que resulta oportuno y acorde con la realidad económica actual efectuar dicha adecuación e incremento salarial en el mes en curso.
+Que, resulta pertinente, tal lo anunciado, efectuar un aumento en la cantidad de módulos que posee cada una de las categorías que integran el organigrama de la Planta Permanente del Municipio, con excepción de la categoría inicial (AUXILIAR INICIAL), que fuera tomada como base de cálculo para los sueldos de la Planta Política.
+Que, respecto al personal temporario, resulta de aplicación el artículo 21 de la Ordenanza Complementaria que establece la base de cálculo para la remuneración de dicha planta Municipal, conforme art. 111 de la Ley 14.656, en cuanto dispone que la remuneración del personal temporario, tanto mensualizado como jornalizado, será equivalente será equivalente al sueldo del empleado municipal de la categoría AUXILIAR DE SERVICIOS GENERALES, CATEGORIA 2.
+Que, tal como lo dispone el Honorable Tribunal de Cuentas (25/06/2007 Expediente 4075-444/07, Municipalidad de Mercedes) “En virtud de este marco normativo, se arriba a la conclusión de que es facultad del Intendente todo aumento salarial que se otorgue, como así también cualquier mejora o bonificación para el personal comprendido dentro del Estatuto, incluyendo tanto al Departamento Ejecutivo como al Deliberativo. Sin perjuicio de ello, se debe aclarar que debe contarse con una partida presupuestaria que permita la imputación del egreso que origina dicho incremento salarial, la que requiere autorización por parte del Honorable Concejo Deliberante a través de la sanción de la ordenanza correspondiente.
+Que, corresponde de tal forma efectuar el incremento en la cantidad de módulos de cada categoría de la Planta Permanente Municipal, a efecto de percibir el aumento contemplado en la Ordenanza oportunamente aprobada, realizándose las adecuaciones presupuestarias pertinentes.
+Que, corresponde el dictado del acto administrativo correspondiente, siendo el mismo de carácter urgente para permitir la liquidación en tiempo y forma para que este se vea reflejado en la liquidación de haberes del presente mes de febrero.
+ORDENANZA
