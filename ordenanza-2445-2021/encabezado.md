@@ -1,0 +1,13 @@
+Ordenanza Nº2445/2021
+Ordenanza Nº 2445/2021
+General Lavalle, 08/07/2021
+VISTO:
+El Expediente Nº 4045-3743/2021 “Pliego de Bases y Condiciones. Licitación transporte público de pasajeros Partido de General Lavalle”, y
+CONSIDERANDO:
+Que en el ámbito del Partido de General Lavalle ya se hubo dictado la Ordenanza Nº 2393/2021 mediante la cual se declaró la Emergencia en materia de Transporte Público de Pasajeros.
+Que a través de Ordenanza Nº 2413/2021 se facultó al Departamento Ejecutivo a realizar el proceso de llamado a Licitación Pública a los fines de concesionar la prestación del servicio referido.
+Que a fs. 115 a 116 la Comisión de Preadjudicación eleva dictamen de referencia resaltando que conforme a lo normado en Art. 187 del Reglamento de Contabilidad y Disposiciones de Administración para las Municipalidades de la Provincia de Buenos Aires, a saber Si en las licitaciones realizadas con las formalidades legales se registrara una sola oferta y este fuere de evidente conveniencia, la autoridad administrativa ( Intendente, Presidente del Concejo y la Dirección de los Organismos descentralizados), podrán resolver su aceptación con autorización del Concejo. En circunstancias distintas, si se insistiera en la compra, deberá efectuarse un segundo llamado (...) corresponde será analizada la única oferta que ha cumplido con los requisitos formales previstos en el Pliego de Bases y Condiciones a los fines de evaluar conveniencia y viabilidad, y remitir posteriormente al Honorable Concejo Deliberante.
+Que, los integrantes de la Comisión de referencia manifiestan en relación a la oferta recibida que: 1- El oferente señala la imposibilidad de determinar un costo del boleto, debido a que no conoce el caudal de pasajeros que utilizarían el servicio, así como tampoco podría establecer un boleto único. 2- El oferente manifiesta que, teniendo en cuenta el monto a absorber por la prestación del servicio y la cantidad de potenciales pasajeros, arrojaría un cuadro tarifario inviable económicamente para los usuarios. 3- El oferente señala que, considerando que la prestación del servicio es totalmente deficitaria en términos financieros y económicos, propone la creación de una tasa de transporte que permita solventar los gastos.
+Que el Cuerpo Deliberativo opina que la oferta en cuestión, en circunstancias actuales, se torna inviable debido a que propone la creación de una tasa como fuente principal de recurso económico necesario para solventar los gastos del servicio, por lo que acuerdan, luego de analizar elementos económicos y técnicos que la única oferta recibida no cumple con los requerimientos necesarios a los fines de otorgar la adjudicación de la prestación del servicio.
+ORDENANZA
+ORDENANZA Nº 2445/2021
