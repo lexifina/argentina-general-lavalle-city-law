@@ -1,0 +1,1 @@
+ARTÍCULO 49º ter.- Aplíquese una multa igual al 40% del monto que resulte de la aplicación del artículo 49º de la presente, para aquellos casos en que los transportes se excedan del peso máximo permitido, conforme lo establezca el decreto reglamentario a dictarse por parte del Departamento Ejecutivo.
