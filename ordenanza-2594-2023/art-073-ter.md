@@ -1,0 +1,1 @@
+Artículo 73º ter. -Facultase al Departamento Ejecutivo a fijar exenciones de cualquier tasa o derecho previsto en la presente ordenanza, previa intervención del área que corresponda, por casos de necesidad y/o emergencia y/o desastre, por cualquier hecho imprevisible, y en los casos que se desprendan de convenios firmados.

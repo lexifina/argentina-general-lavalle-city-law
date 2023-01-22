@@ -1,0 +1,3 @@
+Artículo 66º bis. -Autorizase al Departamento Ejecutivo a no iniciar juicios de apremios cuando su promoción resulte antieconómica para las arcas municipales. Fijase el monto mínimo para iniciar acciones judiciales tendientes al cobro coactivo de créditos fiscales durante el presente ejercicio fiscal en la suma equivalente al sueldo mínimo del personal que reviste dentro del Agrupamiento Obrero de la Administración Municipal, de acuerdo a lo normado por el artículo tercero de la Circular Nº 400/07 del Honorable Tribunal de Cuentas de la Provincia de Buenos Aires, respecto de cada obligación fiscal, y portodoslos períodos no prescriptos de acuerdo con lo dispuesto por el Art. 278º de la Ley Orgánica de las Municipalidades. –
+TÍTULO XI.-
+DISPOSICIONES VARIAS.

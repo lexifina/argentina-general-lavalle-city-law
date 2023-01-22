@@ -1,0 +1,1 @@
+Artículo 85º bis.- Facultase al Departamento Ejecutivo a celebrar convenios con Empresas y/o Cooperativas prestadoras de energía eléctrica, para el cobro de la tasa por Servicios Generales Urbano y Rural a través de la facturación domiciliaria que las mismas efectúen a los usuarios empadronados, de acuerdo a lo normado por la Ley Nº 10.740. –

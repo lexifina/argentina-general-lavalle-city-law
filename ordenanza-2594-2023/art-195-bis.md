@@ -1,0 +1,1 @@
+Artículo 195º bis.-Por cada camión de transporte, que efectúen operaciones de traslado, carga y descarga de todo tipo, salvo el detallado en el artículo precedente, dentro del Partido de General Lavalle, que transiten y utilicen las vías de la red vial de Administración Municipal, se abonará la suma que establezca la Ordenanza Impositiva correspondiente.-

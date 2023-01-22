@@ -1,0 +1,1 @@
+Artículo 140º bis.- Para ocupar o hacer uso de la vía pública se requiere expresa autorización del Departamento Ejecutivo, la que únicamente se otorgará a petición de parte y previo pago de los derechos correspondientes.

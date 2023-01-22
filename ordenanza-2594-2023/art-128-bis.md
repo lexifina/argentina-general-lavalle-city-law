@@ -1,0 +1,1 @@
+Artículo 128º bis.- Establézcase la obligación por parte del titular de inmuebles sitos en zonas complementarias, previo a la expedición del final de obra, de acreditar la instalación de biodigestores.
