@@ -1,0 +1,1 @@
+Artículo 107º Quinquies: Los agentes y representantes a comisión para la distribución o venta de determinados artículos, pagarán el gravamen tomando como base el monto bruto de comisiones o porcentajes respectivos, sin perjuicio del pago de gravámenes por las actividades que ejerzan simultánea o separadamente por cuenta propia. –

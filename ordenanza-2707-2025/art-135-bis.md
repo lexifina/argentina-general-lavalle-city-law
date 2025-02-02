@@ -1,0 +1,1 @@
+Artículo 135º bis. - El Departamento Ejecutivo podrá autorizar y reglamentar el otorgamiento de inspecciones finales de obras, por un cuerpo de profesionales inscriptos en el registro habilitado al efecto por la División de Obras y Servicios Públicos.

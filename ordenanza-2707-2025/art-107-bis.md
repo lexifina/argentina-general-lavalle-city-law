@@ -1,0 +1,7 @@
+Artículo 107º Bis. - A los efectos del Artículo 99º de la presente, se consideran ingresos brutos a las sumas devengadas en valores monetarios, en especies o servicios en concepto de venta de los productos o mercaderías, comisiones, intereses, remuneraciones, compensación de servicio, locaciones, franquicias y en general de las operaciones realizadas. -
+No se computarán en los ingresos brutos, los siguientes conceptos:
+Los importes correspondientes a los impuestos al valor agregado (débito fiscal), internos e impuestos para los fondos: nacionales de autopistas, tecnológico del tabaco y de combustibles. –
+Esta exclusión sólo podrá ser efectuada por los contribuyentes de derecho de los gravámenes citados, en tanto se encuentren inscriptos como tales. El importe a computar será en todos los casos en la medida en que correspondan a las operaciones de la actividad sujeta a impuestos realizadas en el período fiscal que se liquida. –
+Los ingresos correspondientes a venta de bienes de uso y de inversiones financieras exentas en el impuesto a las ganancias. –
+En el caso de concesionarios de automotores, la venta de automotores usados aceptados como parte de pago de unidades nuevas, hasta el monto atribuido en oportunidad de ser recibidos. –
+La parte de primas de seguros destinados a reservas de riesgos en curso o matemáticas, reaseguros pasivos y siniestros y otras obligaciones con asegurados. -
