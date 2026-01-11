@@ -1,0 +1,1 @@
+ARTÍCULO 20° ter. - El monto de la obra se establecerá de la Planilla Anexa de la liquidación de honorarios profesionales, presentada junto al Plano de Obra visado por el respectivo Colegio, que obligatoriamente integrará el expediente de obra en cuestión. -

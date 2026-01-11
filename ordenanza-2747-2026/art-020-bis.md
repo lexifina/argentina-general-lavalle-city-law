@@ -1,0 +1,1 @@
+ARTÍCULO 20º bis. - Queda el Departamento Ejecutivo facultado para intervenir en caso de construcciones con características especiales, aplicando los porcentuales que estime conveniente ante cada caso.
